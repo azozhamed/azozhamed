@@ -1,4 +1,4 @@
-HI , IM Azoz👋
+Hye , Im Azoz👋
 
 
 - 🔭 I’m currently working on project 
