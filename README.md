@@ -8,5 +8,5 @@ Hye , Im Azoz👋
 - 💬 Ask me about anything 
 - 📫 How to reach me:azozhamed@gmail.com
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: I like you
+- ⚡ Fun fact:  There are 31,557,600 seconds in a year
 
