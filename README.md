@@ -7,7 +7,7 @@ Hye , Im abdulaziz👋
 - 💬 Ask me about anything 
 - 📫 How to reach me:azozhamed@gmail.com
 - 😄 Pronouns: HE/HIS
-- ⚡ Fun fact:  There are 31,557,599 seconds in a year and one plus from me 😄
+
 
 
 
